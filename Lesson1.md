@@ -47,19 +47,9 @@
 
 4556552
 
-Hi! Life good!
-4556552 354153431
+Hi! To go to the home, coming to the go.
+下雪了，
 
+风在吹。 
 
-jo
-
-U.N. Owen was when?
-Invizible007
-
-За окном снежинок стая, Тоже водит хоровод. Попрощавшись с годом старым, Мы встречаем Новый год.
-hjhjjjjjj
-hkuhuk
-
-20.04.1987
-bhjkh
-jo
+漆黑的夜晚隐藏着土拨鼠。
