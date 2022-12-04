@@ -53,3 +53,5 @@ Hi! To go to the home, coming to the go.
 风在吹。 
 
 漆黑的夜晚隐藏着土拨鼠。
+
+Сегодня работаем с гитхабом.
